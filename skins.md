@@ -3,8 +3,8 @@
 
 
 
-# [Seoul V10 worsthdplayer edit](https://drive.google.com/u/1/uc?id=1OYZkww64_UrBEoAN7TZnX8rEZlWC-mm1&export=download)
+# [Seoul V10 worst hd player edit](https://drive.google.com/u/1/uc?id=1OYZkww64_UrBEoAN7TZnX8rEZlWC-mm1&export=download)
 ![](https://i.imgur.com/fhz11pG.png)
 
-# [TekkitoShigetora worsthdplayer edit](https://drive.google.com/u/1/uc?id=15sTRZUZjmWxH3IN9v14qiJ1pI89RNDjn&export=download)
+# [TekkitoShigetora worst hd player edit](https://drive.google.com/u/1/uc?id=15sTRZUZjmWxH3IN9v14qiJ1pI89RNDjn&export=download)
 ![](https://i.imgur.com/XTCDwyO.jpg)
